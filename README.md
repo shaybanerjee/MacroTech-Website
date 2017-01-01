@@ -3,4 +3,4 @@ Interned at a Software and Hardware high-vacuum solutions company where I, acted
 
 The website can be viewed at: http://www.macrotech.de
 
-I am the sole author of the website, and I continue to update it on a weekly basis. 
+I am the sole author of the website, and I continue to update it on a monthly basis. 
